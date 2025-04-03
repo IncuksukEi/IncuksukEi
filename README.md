@@ -1,8 +1,8 @@
 # 💫About me:
 🎓 Vũ Đức Hoàng Anh, IT-E6 K68 HUST, Hà Nội<br>
-🎮 Chess, coding, Games, LoL<br>
+🎮 Chess, coding, Games, LoL, Ghenshin<br>
 🛠 Having interest in embeded system <br>
-🎵 Jpop, Vpop, chillmusic<br>
+🎵 Jpop, Vpop, chillmusi,c<br>
 🍵 Coffe, water, milk(milo) <br>
 🌍 Tiếng Việt, English, 日本語 
 
